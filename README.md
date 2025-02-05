@@ -1,1 +1,1 @@
-## | Tarefa d
+## | Tarefa de
