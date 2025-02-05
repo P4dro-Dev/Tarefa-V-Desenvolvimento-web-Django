@@ -1,4 +1,4 @@
 ## 📑| Tarefa de Desenvenvolvimento web II com Django
 
-  Essa essa fcurso
+  Essa essa focurso
  
