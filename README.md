@@ -1,4 +1,4 @@
 ## 📑| Tarefa de Desenvenvolvimento web II com Django
 
-  Essa foi uma atividade do curso 
+  Essa foi uma atividade do curso T
  
