@@ -10,7 +10,7 @@
 
 ## 📧| Contato 
 
-  E-mail: henrique.sous
+  E-mail: henrique.sousa
 
 
 
