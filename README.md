@@ -10,7 +10,7 @@
 
 ## 📧| Contato 
 
-  E-mail: henrique.sousa62@aluno.ifce.e
+  E-mail: henrique.sousa62@aluno.ifce.ed
 
 
 
