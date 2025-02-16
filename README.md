@@ -10,7 +10,7 @@
 
 ## 📧| Contato 
 
-  E-mail: henriqui
+  E-mail: henrique
 
 
 
