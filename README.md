@@ -10,7 +10,7 @@
 
 ## 📧| Contato 
 
-  E-mai
+  E-mail
 
 
 
