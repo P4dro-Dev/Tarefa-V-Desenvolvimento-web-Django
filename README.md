@@ -6,7 +6,7 @@
 
 ## 🗂️| Organização do projeto 
 
-## 🖥️|
+## 🖥️| 
 
 ## 📧| Contato 
 
