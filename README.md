@@ -9,7 +9,7 @@
 ## 🖥️|   
   
    
-## 📧| Contato  
+## 📧| Contato   
      
   📱| Linkedln:  
 
